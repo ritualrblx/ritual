@@ -5,4 +5,4 @@
 
 *- daybreak 2*
 #
-discord.gg/5ZQt4cbxZ2
+discord.gg/bZCykDs6aK
